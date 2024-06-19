@@ -1,6 +1,6 @@
 hi! i'm kit. i'm not the most active person on ponytown but i'll try to show up every so often. <br>
 i usually hang out around the TF2 corner if im not actively doing something so feel free  to come over and say hi! (though be aware i'm usually AFKing so it might take me a little bit to reply to whispers!! i forget to check them a lot >_<)<br>
-if we're friends and we've talked a decent amount then feel free to friend me on discord too, same username as here. although i am pretty bad at consistently dming people so i apologize if i dont message u much...<br><br>
+if we're friends and we've talked a decent amount then feel free to friend me on discord too, same username as here. although i am pretty bad at consistently dming people so i apologize if i dont message u much...<br>
 
 # **DNI**
 i don't really have a dni (it's a funny pony pixel game it's not that deep) but i do Not like hazbin hotel, dsmp, or south park and i'll probably ignore you if you have one of those fandoms as your main skin. no hard feelings!<br>
