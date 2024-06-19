@@ -1,3 +1,6 @@
+<img src="https://file.garden/ZRYOn_KULjLI5-69/art/tumblr_n6238wd1bF1ry1axyo1_640.png"></img><br>
+<a href="https://zarla-s.tumblr.com/post/86650680819/its-science-time-and-you-know-what-that-means">source</a>
+
 hi! i'm kit. i'm not the most active person on ponytown but i'll try to show up every so often. <br>
 i usually hang out around the TF2 corner if im not actively doing something so feel free  to come over and say hi! (though be aware i'm usually AFKing so it might take me a little bit to reply to whispers!! i forget to check them a lot >_<)<br>
 if we're friends and we've talked a decent amount then feel free to friend me on discord too, same username as here. although i am pretty bad at consistently dming people so i apologize if i dont message u much...<br>
