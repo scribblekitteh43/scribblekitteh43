@@ -12,8 +12,8 @@ also i don't really understand touch trigger folks so like. be aware i might boo
 
 
 **INTERESTS**
-i am a liker of many things.. here are.. a few of those things...<br>
-> half-life, portal, RTVS and their various projects (HLVRAI, HLAGE, all of their one-off event streams, etc), homestar runner, sparklefurs, 2001: a space odyssey (and its sequels! although ive only read 2010 and some of 2061), electric dreams, regretevator,  objectum stuff, & much much more. i also really love music of all sorts but i'm especially big on 80's and new wave stuff n_n
+
+> i am a liker of many things.. here are.. a few of those things...<br> half-life, portal, RTVS and their various projects (HLVRAI, HLAGE, all of their one-off event streams, etc), homestar runner, sparklefurs, 2001: a space odyssey (and its sequels! although ive only read 2010 and some of 2061), electric dreams, regretevator,  objectum stuff, & much much more. i also really love music of all sorts but i'm especially big on 80's and new wave stuff n_n
 
 
 
