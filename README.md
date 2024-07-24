@@ -7,6 +7,6 @@ if we're friends and we've talked a decent amount then feel free to friend me on
 
 **DNI**
 <br>i don't really have a dni (it's a funny pony pixel game it's not that deep) but i do Not like hazbin hotel, dsmp, or south park and i'll probably ignore you if you have one of those fandoms as your main skin. no hard feelings!<br>
-also i don't really understand touch trigger folks so like. be aware i might boop you or something lol
+also i don't really understand touch trigger folks so like. be aware i might boop you or something lol. i'll try to be respectful though
 
 <img src="https://file.garden/ZRYOn_KULjLI5-69/stamps/tumblr_3c470a4e729cc981d0b1dced90307127_b7cc1f59_100.png"></img> <img src="https://file.garden/ZRYOn_KULjLI5-69/stamps/tumblr_246e39c2dfae1cb369873728bca0b77a_83b4a7d8_100.gif"></img> <img src="https://file.garden/ZRYOn_KULjLI5-69/stamps/old_web_stamp_by_vtge-dcgi6h4.png"></img> <img src="https://file.garden/ZRYOn_KULjLI5-69/stamps/tumblr_6c20a47dfb58d7693bb17179a3455f3f_e71cde9b_100.png"></img> <img src="https://file.garden/ZRYOn_KULjLI5-69/stamps/d55rv2p-a1583267-7c38-48ba-94fb-f34478193d68.gif"></img> <img src="https://file.garden/ZRYOn_KULjLI5-69/stamps/db72gkj-9c9d0838-4e5a-443b-90fc-4826f8024e22.gif"></img>
