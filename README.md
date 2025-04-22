@@ -1,1 +1,2 @@
-hi! im kit. they/them but i dont mind if you use the pronouns of the char im cosplaying lol<br>i'm not too active on PT, and when i'm not idling i'm usually on call with my friends, so i apologize if i act a little sporadic! whispering to interact is prefered for that reason n_n<br>i don't have a dni but i hide skins pretty liberally. if we're buddies feel free to friend me on discord (same user as my URL on here)
+kit | they/them<br>
+i am shy so i apologize if i dont int much! i love meeting people though
